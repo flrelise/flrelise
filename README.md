@@ -15,6 +15,6 @@ my fandoms; soo many.. danganronpa, genshin, madoka magica, hxh, overwatch, pers
 
 <br>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=flrelise&color=grey)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=flrelise&color=8b0000)
 
 </div>
