@@ -1,4 +1,4 @@
-![image](https://github.com/flrelise/flrelise/blob/b6980ab275ee9de0f6cbb90700c824570cd4fca5/b9ebef056e4f169ae09d39e1c0f3c832.jpg)
+![image](https://github.com/flrelise/flrelise/blob/9faf9fa2b6e73792a6461f9680b8fe2c54c27128/image_2026-06-25_212149888.png)
 ### check my strawpage,, it has more info :P
 * sign my ata too while ur here !
 
