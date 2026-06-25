@@ -5,6 +5,12 @@
 ### check my strawpage,, it has more info :P
 sign my ata too while ur here !
 
+<p align="center">
+  <a href="https://open.spotify.com/user/jgtv63vpu1w459mns0andvfto">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view.svg?uid=jgtv63vpu1w459mns0andvfto&cover_image=true&background_color=000000&interchange=false">
+  </a>
+</p>
+
 <br>
 
 my fandoms; soo many.. danganronpa, genshin, madoka magica, hxh, overwatch, persona, mlp (trixie my fav), idv, animal crossing, paswg, jojos, deadlock
