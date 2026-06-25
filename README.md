@@ -11,7 +11,7 @@ my fandoms; soo many.. danganronpa, genshin, madoka magica, hxh, overwatch, pers
 
 <br><br>
 
-![image](https://github.com/flrelise/flrelise/blob/9faf9fa2b6e73792a6461f9680b8fe2c54c27128/image_2026-06-25_212149888.png)
+![image](https://github.com/flrelise/flrelise/blob/ef2f121d4f48ef079ef8b3c04b4a1b57916ce2f5/image_2026-06-25_212923064.png)
 
 <br>
 
