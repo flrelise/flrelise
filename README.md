@@ -1,5 +1,5 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=flrelise)
-### im tryna make this look cool but i havent done programming in like 5 years
+### check my strawpage,, it has more info :P
 
 
 
