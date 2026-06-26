@@ -2,8 +2,8 @@
 
 ![image](https://github.com/flrelise/flrelise/blob/6890a7fd4be1525e63c96fde1cb26a5050caa14a/meowww.png)
 
-### check my strawpage,, it has more info :P
-sign my ata too while ur here !
+### 19 ,, she/her 
+check my strawpage for more info,, & sign my ata too while ur here !
 
 
 
