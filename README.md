@@ -9,8 +9,6 @@ check my strawpage for more info,, & sign my ata too while ur here !
 
 <br>
 
-my fandoms; soo many.. danganronpa, genshin, madoka magica, hxh, overwatch, persona, mlp (trixie my fav), idv, animal crossing, paswg, jojos, deadlock
-
 <br><br>
 ![☆!](https://komarev.com/ghpvc/?username=flrelise&label=⋆｡°✩&color=6E667E)
 
