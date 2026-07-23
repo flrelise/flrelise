@@ -14,6 +14,6 @@ check my strawpage for more info,, & sign my ata too while ur here !
 
 <br><br>
 
-<img src="https://github.com/flrelise/flrelise/blob/main/Illustration2.png?raw=true" width="700">
+<img src="https://github.com/flrelise/flrelise/blob/main/Illustration2.png?raw=true">
 
 </div>
