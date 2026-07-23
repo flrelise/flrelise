@@ -1,6 +1,6 @@
 <div align="center">
 
-![image](https://github.com/flrelise/flrelise/blob/5b99f10504795bcd1f1bd0062c15984046716674/721a4df3b3ba8bc9b0866d15aac43f66.png)
+![image](https://github.com/flrelise/flrelise/blob/5b99f10504795bcd1f1bd0062c15984046716674/3fdbfa8871feff63303aee2c24c7d51e.png)
 
 ### 19 ,, she/her 
 check my strawpage for more info,, & sign my ata too while ur here !
@@ -14,7 +14,7 @@ my fandoms; soo many.. danganronpa, genshin, madoka magica, hxh, overwatch, pers
 <br><br>
 ![ghosts!](https://komarev.com/ghpvc/?username=flrelise&label=ghosts!&color=660000)
 
-![image](https://github.com/flrelise/flrelise/blob/5b99f10504795bcd1f1bd0062c15984046716674/3fdbfa8871feff63303aee2c24c7d51e.png)
+![image](https://github.com/flrelise/flrelise/blob/5b99f10504795bcd1f1bd0062c15984046716674/721a4df3b3ba8bc9b0866d15aac43f66.png)
 
 <br>
 
