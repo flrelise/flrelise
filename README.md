@@ -1,7 +1,7 @@
 <div align="center">
 
 
-![image](https://github.com/flrelise/flrelise/blob/5b99f10504795bcd1f1bd0062c15984046716674/721a4df3b3ba8bc9b0866d15aac43f66.png)
+<img src="https://github.com/flrelise/flrelise/blob/main/721a4df3b3ba8bc9b0866d15aac43f66.png?raw=true" width="700">
 ### 19 ,, she/her 
 check my strawpage for more info,, & sign my ata too while ur here !
 
