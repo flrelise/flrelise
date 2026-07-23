@@ -6,7 +6,7 @@
 
 <p>
 check my strawpage for more info,, & sign my ata too while ur here !
-</p>
+## ──────── ⋆｡°✩ ────────
 
 <br>
 
