@@ -15,7 +15,7 @@ my fandoms; soo many.. danganronpa, genshin, madoka magica, hxh, overwatch, pers
 ![ghosts!](https://komarev.com/ghpvc/?username=flrelise&label=ghosts!&color=660000)
 
 ![image](https://github.com/flrelise/flrelise/blob/5b99f10504795bcd1f1bd0062c15984046716674/3fdbfa8871feff63303aee2c24c7d51e.png)
-![image](https://github.com/flrelise/flrelise/blob/f8430814ed0b56567b1fd1a1525a1fd4ae5b947a/Illustration.png)
+![image](https://github.com/flrelise/flrelise/blob/25314f0025a7cb5de3c2416e38cc7923b80f1016/Illustration2.png)
 <br>
 
 
