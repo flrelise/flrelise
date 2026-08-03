@@ -5,9 +5,8 @@
 <h3 style="color:#6E667E;">19 ,, she/her</h3>
 
 <p>
-check my strawpage for more info,, & sign my ata too while ur here !
+check my strawpage & sign my ata too while ur here !
 <br>
-also give me song reccs im always looking to expand my taste :P
 
 
 
