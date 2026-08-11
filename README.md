@@ -17,7 +17,7 @@ check my strawpage & sign my ata too while ur here !
 <img src="https://komarev.com/ghpvc/?username=flrelise&label=⋆｡°✩&color=6E667E">
 <br> <br>
 
-<img src="https://github.com/flrelise/flrelise/blob/85aaa7e8998c28503aefb635f090bc4b0330a9b0/remielle%20mini.png"width="200">
+<img src="">
 
 </div>
 frames by @phaea tumblr
