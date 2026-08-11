@@ -14,7 +14,7 @@ check my strawpage & sign my ata too while ur here !
 <br>
 ──────── ⋆｡°✩ ────────
 <br> <br>
-<img src="https://komarev.com/ghpvc/?username=flrelise&label=⋆｡°✩&color=6E667E">
+<img src="https://komarev.com/ghpvc/?username=flrelise&label=⋆｡°✩&color=1E2C41">
 <br> <br>
 
 <img src="https://github.com/flrelise/flrelise/blob/9392203b97595291ad1b0c22fcf5af8d71a37eb6/minimini.png">
