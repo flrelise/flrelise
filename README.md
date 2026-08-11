@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://github.com/flrelise/flrelise/blob/a18a6e1d2b445cec657147c64b9e89d4c4e13719/remielle%20dan%20final%20w%20name.png" width="750">
+<img src="https://github.com/flrelise/flrelise/blob/8fb33fa6b370ddb5a96cf9ad3ec589f5a0d8274d/remielle%20danfinal%20final%20final.jpg" width="750">
 
 <h3 style="color:#6E667E;">19 ,, she/her</h3>
 
