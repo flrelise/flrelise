@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://github.com/flrelise/flrelise/blob/e6d49c1c945e604d87fa7a0a8d2f64d2a3cfb84d/kanadebg.png" width="750">
+<img src="https://github.com/flrelise/flrelise/blob/66ff344776e9e4654aec78b446d7bc3b2a0d114f/kanadebg1.png" width="750">
 
 <h3 style="color:#6E667E;">19 ,, she/her</h3>
 
