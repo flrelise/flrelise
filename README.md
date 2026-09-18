@@ -1,5 +1,4 @@
 <div align="center"> 
-⋆𐙚 ̊. <img src="https://komarev.com/ghpvc/?username=flrelise&label=⋆｡°✩&color=58706A"> ⊹ ࣪ ˖
       <br>
 <img src="https://github.com/flrelise/flrelise/blob/66ff344776e9e4654aec78b446d7bc3b2a0d114f/kanadebg1.png" width="750">
 
