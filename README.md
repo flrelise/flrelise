@@ -2,8 +2,6 @@
 
 <img src="https://github.com/flrelise/flrelise/blob/66ff344776e9e4654aec78b446d7bc3b2a0d114f/kanadebg1.png" width="750">
 
-<h3 style="color:#6E667E;">19 ,, she/her</h3>
-
 <p>
 ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔
 <br>
