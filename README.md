@@ -13,7 +13,7 @@
 
 <br>
 <br>
-⋆𐙚 ̊. <img src="https://komarev.com/ghpvc/?username=flrelise&label=⋆｡°✩&color=58706A">
+⋆𐙚 ̊. <img src="https://komarev.com/ghpvc/?username=flrelise&label=⋆｡°✩&color=58706A"> ⊹ ࣪ ˖
 <br> <br>
 
 <img src="https://github.com/flrelise/flrelise/blob/782db15267b3d5f039c4c2de96e2b7207761f8ba/minikanade1.png">
