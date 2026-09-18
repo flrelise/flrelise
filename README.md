@@ -11,7 +11,7 @@
 <br>
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 <br>
-──────── ⋆｡°✩ ────────
+
 <br> <br>
 <img src="https://komarev.com/ghpvc/?username=flrelise&label=⋆｡°✩&color=58706A">
 <br> <br>
