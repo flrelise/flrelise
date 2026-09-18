@@ -1,5 +1,5 @@
 <div align="center">
-︵︵︵ ๑ ♡ ๑ ︵︵︵
+. ܁₊ ⊹ . ܁ ⟡ ܁ . ⊹ ₊ ܁.
       <br>
 <img src="https://github.com/flrelise/flrelise/blob/66ff344776e9e4654aec78b446d7bc3b2a0d114f/kanadebg1.png" width="750">
 
