@@ -5,7 +5,10 @@
 <h3 style="color:#6E667E;">19 ,, she/her</h3>
 
 <p>
-check my strawpage & sign my ata too while ur here !
+⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔
+        ⚠︎  ꒰ elise ꒱ ⸝⸝⸝ ʚɞ
+      ┊she ノ her .ᐟ enfp┆
+             𔓎 19 . ֹʚ𓉸ɞ﹒꒱ 
 <br>
 
 
